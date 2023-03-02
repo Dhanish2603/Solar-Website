@@ -1,1 +1,1 @@
-# Solar-
+# Solar-Power
